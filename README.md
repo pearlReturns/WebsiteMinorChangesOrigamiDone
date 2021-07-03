@@ -1,1 +1,1 @@
-# WebsiteMinorChangesOrigamiDone
+this is a guide to begginers origami! hope you like it 
